@@ -11,7 +11,7 @@ First of all, thanks for visiting my profile. Here, what you should know about m
 ✨ Open-Source Adventurer: Eager to collaborate with fellow tech enthusiasts, contribute to open-source projects, and sprinkle a little community magic wherever I go!
 
 
-                                   ⚡FUN FACT: I'm a coffee ☕ person and loves Slytherin 🐍 over Gryffindor 🪄
+                               ⚡FUN FACT: I'm a coffee ☕ person and loves Slytherin 🐍 over Gryffindor 🪄
 
 
 <!--
